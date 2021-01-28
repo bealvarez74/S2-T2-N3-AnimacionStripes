@@ -1,0 +1,1 @@
+# S2-T2-N3-AnimacionStripes
